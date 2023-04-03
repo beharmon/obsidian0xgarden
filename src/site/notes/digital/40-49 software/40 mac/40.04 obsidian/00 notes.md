@@ -24,9 +24,9 @@ https://forum.obsidian.md/t/list-or-repository-of-downloadable-vaults/12561
 ## doing this
 https://github.com/denolehov/obsidian-git
 
-https://help.obsidian.md/How+to/Manage+attachments
+[https://help.obsidian.md/How+to/Manage+attachments]
 
-https://github.marknoteapp.com/MarkGit/sync-obsidian/
+[https://github.marknoteapp.com/MarkGit/sync-obsidian/]
 
 
 
