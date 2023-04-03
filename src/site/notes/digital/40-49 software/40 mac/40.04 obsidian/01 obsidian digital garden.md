@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/digital/40-49-software/40-mac/40-04-obsidian/01-obsidian-digital-garden/"}
+{"dg-publish":true,"permalink":"/digital/40-49-software/40-mac/40-04-obsidian/01-obsidian-digital-garden/","dgPassFrontmatter":true,"noteIcon":""}
 ---
 
 
