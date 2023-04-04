@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/digital/20-29-work/20-state-of-nevada/20-01-pepb/pepb/","tags":["gardenEntry"],"noteIcon":""}
+{"dg-publish":true,"permalink":"/digital/20-29-work/20-state-of-nevada/20-01-pepb/pepb/","noteIcon":""}
 ---
 
 
