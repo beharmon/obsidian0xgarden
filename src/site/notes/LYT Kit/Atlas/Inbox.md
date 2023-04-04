@@ -2,7 +2,6 @@
 {"dg-home":true,"dg-publish":true,"permalink":"/lyt-kit/atlas/inbox/","tags":["gardenEntry"],"dgPassFrontmatter":true,"noteIcon":""}
 ---
 
-
 up:: [[LYT Kit/Home\|Home]]
 tags:: #map/view 
 
