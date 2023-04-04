@@ -1,5 +1,5 @@
 ---
-{"dg-home":true,"dg-publish":true,"permalink":"/digital/40-49-software/40-mac/40-04-obsidian/00-notes/","tags":["gardenEntry"],"dgPassFrontmatter":true,"noteIcon":""}
+{"dg-publish":true,"permalink":"/digital/40-49-software/40-mac/40-04-obsidian/00-notes/","dgPassFrontmatter":true,"noteIcon":""}
 ---
 
 
