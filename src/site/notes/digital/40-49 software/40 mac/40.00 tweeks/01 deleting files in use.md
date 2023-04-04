@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/digital/40-49-software/40-mac/40-00-tweeks/01-deleting-files-in-use/","dgPassFrontmatter":true,"noteIcon":""}
+{"dg-home":true,"dg-publish":true,"permalink":"/digital/40-49-software/40-mac/40-00-tweeks/01-deleting-files-in-use/","tags":["gardenEntry"],"dgPassFrontmatter":true,"noteIcon":""}
 ---
 
 
