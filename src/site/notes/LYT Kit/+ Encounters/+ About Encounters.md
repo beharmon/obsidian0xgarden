@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/lyt-kit/encounters/about-encounters/","tags":["gardenEntry"],"noteIcon":""}
+{"dg-publish":true,"permalink":"/lyt-kit/encounters/about-encounters/","noteIcon":""}
 ---
 
 
