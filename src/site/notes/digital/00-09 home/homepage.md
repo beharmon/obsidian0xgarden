@@ -5,11 +5,6 @@
 
 
 
-
-<center></center>
-<center>vv</center>
-
 ```search-bar
-only search bar
-show starred files
+
 ```
