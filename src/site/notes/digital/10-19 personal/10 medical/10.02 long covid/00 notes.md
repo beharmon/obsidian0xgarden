@@ -1,5 +1,5 @@
 ---
-{"dg-publish":true,"permalink":"/digital/10-19-personal/10-medical/10-02-long-covid/00-notes/","tags":["gardenEntry"],"noteIcon":""}
+{"dg-publish":true,"permalink":"/digital/10-19-personal/10-medical/10-02-long-covid/00-notes/","noteIcon":""}
 ---
 
 
