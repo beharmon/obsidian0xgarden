@@ -53,3 +53,8 @@ equal em
 eoc and long covid
 
 
+parasympathetic stress
+
+
+divergent focus
+practice
