@@ -6,11 +6,6 @@
 April 23rd 2023 --Submitted request to Valerie Valerie Leitko, PA-C
 April 25rd 2023 --dr. responded. didnt answer questions ---called 
 
-
-
-
-
-
 My question help me understand which path I will be taking.
 
 I am green when it comes to undersate the term Diagnosis. 
@@ -23,3 +18,5 @@ Are you diagnosing me or do I have to find a method to be diagnosed?
 
 
 ADA seems very specific. So I dont want to go in requesting ADA if I dont even have a diagnosis. 
+
+April 28rd 2023 --dr. still no response
