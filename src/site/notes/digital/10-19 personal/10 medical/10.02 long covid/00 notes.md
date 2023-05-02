@@ -18,6 +18,23 @@ trying to get an accommodation at work.?
 a phycatrist??
 
 
+breathing
+chant
+no thought zone
+
+in the now.
+sit quietly
+deep breathing
+academy-advaita.com shanker
+
+dropbox-share
+
+
+
+
+150/90
+
+over 100
 
 
 
