@@ -5,6 +5,40 @@
 
 April 23rd 2023 --Submitted request to Valerie Valerie Leitko, PA-C
 April 25rd 2023 --dr. responded. didnt answer questions ---called 
+April 28rd 2023 --dr. still no response
+May 3rd  called again-- spoke formulated a plan for the 9th
+
+
+
+I submitted some questions on April 23rd that would help me try to get to a comfortable place to continue to work.
+You didn't answer the questions so i'm guess you didn't read the entire email.
+So I called April 25rd 2023 to hopefully get a response as emailing them was not effective.
+I still have not got any response to my questions or a call back. 
+
+
+I am in really bad shape. My body will not turn off this fight of flight sensation. I am not asking for special attention. Although it would be great, all im asking for is 
+
+
+
+
+I am doing my best
+
+
+I am struggling to navigate a system that requires 
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 My question help me understand which path I will be taking.
 
