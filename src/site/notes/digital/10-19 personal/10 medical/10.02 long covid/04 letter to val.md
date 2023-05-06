@@ -3,6 +3,32 @@
 ---
 
 
+5/4/2023
+
+VAL PLAN
+get a toothless letter
+
+
+Continue with Diagnosis
+
+
+Once I get a diagnosis, Go for the ADA WFH
+where do i service?j
+
+crippling sympathetic new stimulation.
+WAKE up =h ON
+
+
+
+
+
+
+
+
+
+
+
+
 Request for Workplace Accommodations
 
 Dear Dr. Leitko,
@@ -23,11 +49,6 @@ Thank you for your attention to this matter. Please let me know if you require a
 
 Sincerely,
 Brandon
-
-
-
-
-
 
 **My work information:**
 
@@ -112,24 +133,3 @@ Below is a composite of the supplements and medicines I have tried to improve my
 - More Sun
 - Anti-Histamine Diet
 - Reduce Stress
-
-
-
-
-
-
-
-
-
-My question help me understand which path I will be taking.
-
-I am green when it comes to undersate the term Diagnosis. 
-
-As far as I know I have been not been diagnoed. me requesting acomdations really based on my research mean this request is somwhat inforval vs a validated diagnosis.
-
-This kind of determines if this is a forma ADA request vs an informal request. Both seem to have different weights. 
-
-Are you diagnosing me or do I have to find a method to be diagnosed?
-
-
-ADA seems very specific. So I dont want to go in requesting ADA if I dont even have a diagnosis. 
