@@ -2,30 +2,17 @@
 {"dg-publish":true,"permalink":"/digital/10-19-personal/10-medical/10-02-long-covid/04-letter-to-val/","noteIcon":""}
 ---
 
-
 5/4/2023
 
 VAL PLAN
 get a toothless letter
 
-
 Continue with Diagnosis
 
+IF I get a diagnosis, Go for the ADA WFH
 
-Once I get a diagnosis, Go for the ADA WFH
-where do i service?j
-
-crippling sympathetic new stimulation.
-WAKE up =h ON
-
-
-
-
-
-
-
-
-
+crippling sympathetic to new stimulation.
+WAKE up = ON
 
 ## LETTER
 
