@@ -80,7 +80,36 @@ practice
 
 
 
+process information/speed
+inattention
+executive disfunction
+memory
 
+
+
+Try:
+
+neur rehab
+
+skills to offset deficets
+
+"goal management training"
+
+prioritize
+SLP speech language pathology
+
+brain training program
+BRAIN HQ
+
+co-exist with really hard things
+i cant live with it, even if i dont want it
+
+LEARN TO ASK FOR HELP
+
+Neuro plasticity
+[good read](https://www.healthline.com/health/brain-plasticity-after-injury)
+
+cognitive domains
 
 
 
