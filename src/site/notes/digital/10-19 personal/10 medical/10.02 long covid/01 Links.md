@@ -48,6 +48,37 @@
 
 [vagas nerve](https://www.youtube.com/watch?v=zUx5kLFyx-M)
 
+[mastattack](https://www.mastattack.org/treatment/)
+
+[diag approach](<https://www.mayoclinicproceedings.org/article/S0025-6196(21)00513-9/fulltext>)
+
+
+
+[overview](https://www.merckmanuals.com/home/brain,-spinal-cord,-and-nerve-disorders/autonomic-nervous-system-disorders/overview-of-the-autonomic-nervous-system)
+
+
+[stay alive](https://www.uchealth.org/today/how-to-tame-fight-or-flight-responses-to-the-coronavirus-pandemic/)
+
+[work issues](https://www.venable.com/insights/publications/2022/06/long-covid-a-get-out-of-work-free-card)
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
 # NEURO INFO
