@@ -3,6 +3,10 @@
 ---
 
 
+I feel like I have a concussion all day long.
+I get unrestful sleep. None of my memories get stored
+Mental exertion and conflict trigger baseline symptoms to get worse.
+
 **General symptoms**
 -   Tiredness and fatigue that interferes with daily life
 -    Low mood; irritability
