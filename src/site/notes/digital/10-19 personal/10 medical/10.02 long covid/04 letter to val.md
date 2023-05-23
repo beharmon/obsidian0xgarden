@@ -120,3 +120,48 @@ Below is a composite of the supplements and medicines I have tried to improve my
 - More Sun
 - Anti-Histamine Diet
 - Reduce Stress
+
+
+
+
+
+
+
+
+Please give patient a 5 mL syringe
+Dissolve one tab 50 mg in 50 mL of water
+This give 1 mg/mL (so it doesn't matter whether we talk about mg or mL)
+Keep refrigerated; shelf-life is several month
+Use a syringe to measure dose Start 0.5 mL (i.e., 0.5 mg) at bedtime
+Increase dose every 2 weeks by 0.5 mg until 4.5 mg
+If you develop vivid dreams or insomnia, take in the morning instead
+
+
+
+
+
+The dosage they get you to start with 1mg and work your way up to 4.5. You should stop at whatever dose you feel best.
+
+You can also prescribe at 50mg to bypass the cost and constant script changes. 
+
+Below are the instructions for managing a 50mg dose:
+
+Dissolve one tab 50 mg in 50 mL of water
+This give 1 mg/mL (so it doesn't matter whether we talk about mg or mL)
+Keep refrigerated; shelf-life is several month
+Use a syringe to measure dose Start 0.5 mL (i.e., 0.5 mg) at bedtime
+Increase dose every 2 weeks by 0.5 mg until 4.5 mg
+If you develop vivid dreams or insomnia, take in the morning instead
+
+If you are open to this method I have all the syringes and measuring tools to manage this process.
+
+Let me know. thank you! LDN seems to be the most effective for some patients and I am looking forward to giving it a try.
+
+
+
+
+
+tim or jen
+
+ericka
+
