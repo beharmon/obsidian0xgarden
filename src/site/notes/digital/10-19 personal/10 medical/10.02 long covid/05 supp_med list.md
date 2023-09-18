@@ -9,6 +9,8 @@
 - sucralfate 1gm
 - guanfacine tabs 2mg
 - buspirone 5mg
+- Ketasma 1mg
+- deslor 5mg
 
 
 ## Supplements 
